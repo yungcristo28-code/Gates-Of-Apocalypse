@@ -1,2 +1,2 @@
 # Gates-Of-Apocalypse
-is a legal mark of developer igor®
+is a legal mark of developer 
